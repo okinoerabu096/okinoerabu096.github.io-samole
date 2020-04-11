@@ -1,1 +1,1 @@
-# okinoerabu096.github.io-samole
+# okinoerabu.github.io
